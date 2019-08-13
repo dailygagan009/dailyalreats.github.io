@@ -1,1 +1,1 @@
-# dailygagan009.github.io
+Daily News | Technology | Automobile |Education and more updates
